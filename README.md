@@ -1,2 +1,0 @@
-# TIME-OF-ISLAM
-ZHVIP
